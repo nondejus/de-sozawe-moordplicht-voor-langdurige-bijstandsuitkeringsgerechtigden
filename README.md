@@ -1,1 +1,1 @@
-# de-sozawe-moordplucht-voor-langdurige-bijstandsuitkeringsgerechtigden
+de-sozawe-moordplicht-voor-langdurige-bijstandsuitkeringsgerechtigden
